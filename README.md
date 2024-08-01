@@ -7,8 +7,7 @@
 
 - 📫 How to reach me **palomitaom@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://www.canva.com/design/DAGJtYu7z1A/0GUj66mHjCH0DZ_8nwF0Og/view?utm_content=DAGJtYu7z1A&utm_campaign=designshare&utm_medium=link&utm_source=editor)
-
+- 📄 Know about my experiences [Resume](https://docs.google.com/document/d/1blPVvKyH0Lf7DBIvyu3aH_ThvNSpelvn3dbDm4d31Hk/edit?usp=sharing)
 - ⚡ Fun fact **I almost lost 4 teeth playing field hockey**
 
 <h3 align="left">Connect with me:</h3>
